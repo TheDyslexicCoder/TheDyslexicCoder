@@ -2,7 +2,7 @@
 - 👨🏽‍💻 I’m a citizen scientist writing about innovative technology solutions in public health and financial & accounting domains. 
 - 🌱 I’m currently learning about myself and leveraging my dyslexic insights to address real-world problems.
 - 💞️ I’m always looking to collaborate!
-- 📫 Reach me 📌[@My Medium Channel](https://medium.com/@thedyslexiccoder)
+- 📫 Reach me 📌[@My Medium Channel](https://medium.com/@thedyslexiccoder) or 📧 Email me @ thedyslexiccoder@outlook.com.
 - Godspeed!🚀
 
 <!---
